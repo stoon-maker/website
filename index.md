@@ -18,13 +18,16 @@ Unsere Adresse lautet:
 > Weisestr. 4 \
 > 12049 Berlin-Neukölln \
 > Tel.: 030 89655951
+> Mail: <vorstand.kinkies@gmail.com>
+
+
+Wir suchen immer wieder nach Honorarkräften, die in Krankheitsfällen oder
+ähnlichem bei uns aushelfen können. Bei Interesse schickt bitte eine Mail.
 
 Der Kinderladen hat wochentags geöffnet von 8:00 bis 16:30 Uhr.
 
 
-Wir suchen immer wieder nach Honorarkräften, die in Krankheitsfällen oder
-ähnlichem bei uns aushelfen können. Bei Interesse schickt  bitte eine Mail
-an <vorstand.kinkies@gmail.com>.
+
 
 ## Wir sind die Kinkies
 
